@@ -13,3 +13,6 @@ https://vk.com/designernoname
 proofs:https://vk.me/join/bB3gtQpjwi0sxSIT/cG_30I86B_zDZh2d5I=
 https://vk.com/squadclient
 proofs: https://vk.me/join/Ru2gUn8_pv6r7qDRarvcIUp5XWceyls_DcU=
+
+https://vk.com/nrclient
+proofs:https://disk.yandex.ru/i/x00a4ojdj7uQIA
